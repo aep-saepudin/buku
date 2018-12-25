@@ -1,0 +1,2 @@
+Scrum Methodology: Panduan Project Management - https://www.dewaweb.com/blog/scrum-methodology-panduan-project-management/
+Ini Makna SCRUM dalam Dunia Development Product - https://www.jagoanhosting.com/blog/ini-makna-scrum-dalam-dunia-development-product/
